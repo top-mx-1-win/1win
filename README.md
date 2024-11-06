@@ -1,4 +1,4 @@
-<h2>Amplia Gama de Juegos en <a href="https://1win1.mxt/">1win </a>: Opciones para Todos los Tipos de Jugadores</h2>
+<h2>Amplia Gama de Juegos en <a href="https://1win1.mx/">1win </a>: Opciones para Todos los Tipos de Jugadores</h2>
 <p>Con una interfaz amigable y atractiva, <strong>1Win</strong> brinda una gran variedad de juegos que cubren todas las preferencias de los usuarios. Desde <strong>más de 1,500 tragamonedas</strong> hasta <strong>apuestas deportivas</strong> en más de <strong>40 categorías</strong>, incluyendo deportes electrónicos populares como <em>Dota 2</em> y <em>CS:GO</em>, 1Win permite que cada jugador encuentre entretenimiento a su medida.</p>
 
 <table>
